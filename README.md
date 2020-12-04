@@ -1,3 +1,4 @@
 # blog
 
-This is my portfolio/blog. Please feel free to look around.
+My personal blog is COMING SOON.
+Thank you.
